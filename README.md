@@ -3,7 +3,7 @@ Base WhatsApp Bot Multi Device
 Charlie and team
 
 <p align="center">
-	<img src="https://telegra.ph/file/09cc0981ccf07754d0af6.jpg" width="35%" style="margin-left: auto;margin-right: auto;display: block;">
+	<img src="https://www.instagram.com/p/CTgT26gla2FwVoOJ613NKOe4-gkn8vEfa-TBZM0/?utm_medium=copy_link" width="35%" style="margin-left: auto;margin-right: auto;display: block;">
 </p>
 <h1 align="center">CHARLIE999</h1>
 
